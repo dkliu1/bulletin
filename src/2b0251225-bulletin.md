@@ -1,0 +1,251 @@
+# St DAVID’S MOORABBIN CHURCH COMMUNICATION  
+**圣大卫·穆拉宾教会通讯**
+
+## Christmas and First Sunday after Christmas 28 December 2025  
+**圣诞节及圣诞后第一个主日｜2025年12月28日**
+
+---
+
+## CALENDAR  
+## 日程安排
+
+**Sunday Worship Service: at 09:00 AM. All are welcome.**  
+主日敬拜：上午9:00，欢迎所有人参加。
+
+**Wednesday Communion Service: In Recess**  
+周三圣餐礼：暂时暂停。
+
+**Mother’s Union: First Tuesday every month at 12:00 PM**  
+母亲会：每月第一个星期二中午12:00。
+
+**English Conversation Classes: In Recess**  
+英语会话班：暂时暂停。
+
+**Men’s Fellowship : First Friday every month at 6 PM**  
+男士团契：每月第一个星期五晚上6:00。
+
+---
+
+## Notices  
+## 公告事项
+
+**Please attend Christmas Eve Service 24/12 Wed 5pm Kids focused talk**  
+请参加12月24日（周三）下午5点的平安夜礼拜（儿童主题分享）。
+
+**Holy Communion**  
+圣餐礼。
+
+**Please attend Christmas Eve Service 24/12 Wed 10pm Carols**  
+请参加12月24日（周三）晚上10点的平安夜颂歌礼拜。
+
+**10:30pm Communion Service**  
+晚上10:30 圣餐礼。
+
+**Preacher Rev Paul**  
+讲道：保罗牧师。
+
+**Organist : Felix**  
+风琴师：Felix。
+
+**Please attend Christmas Day Service 25/12 Thurs 9am**  
+请参加12月25日（周四）上午9点的圣诞日礼拜。
+
+**Please attend Service with Bishop Paul Barker to preach and preside 28/12 9am**  
+请参加12月28日（上午9点）由保罗·巴克主教讲道并主礼的崇拜。
+
+**A warm welcome and much gratitude for Bishop Paul’s visit and care**  
+热烈欢迎并衷心感谢保罗主教的来访与关怀。
+
+**Please pray for Rev Michelle as she resigned from being the vicar of St David’s**  
+请为Michelle牧师祷告，她已辞去圣大卫教会主任牧师一职。
+
+**Please pray for St David’s when we are sad missing our dear vicar Michelle**  
+当我们思念亲爱的Michelle牧师而感到难过时，请为圣大卫教会祷告。
+
+---
+
+## READINGS - This Sunday  
+## 本主日经文
+
+**Isaiah 63: 7-9**  
+以赛亚书 63:7–9  
+
+**Psalm 148**  
+诗篇 148  
+
+**Hebrews 2: 10-18**  
+希伯来书 2:10–18  
+
+**Matthew 2: 13-23**  
+马太福音 2:13–23  
+
+---
+
+## HYMNS - This Sunday  
+## 本主日诗歌
+
+**O God, our help in ages past**  
+噢，神啊，历世以来你是我们的帮助  
+
+**Unto us a boy is born**  
+有一婴孩为我们而生  
+
+**Lord for the years**  
+主啊，为这岁月  
+
+**Bind us together Lord**  
+主啊，求你使我们合一  
+
+**Great is your faithfulness**  
+你信实何广大  
+
+---
+
+## ROSTERS - This Sunday  
+## 本主日服事安排
+
+**Reader: Beth and Carole**  
+读经：Beth 与 Carole  
+
+**Prayer: Muriel**  
+代祷：Muriel  
+
+**Chalice: Marilyn**  
+圣杯：Marilyn  
+
+**Welcome: Ross**  
+接待：Ross  
+
+**Server: Marilyn**  
+侍从：Marilyn  
+
+**IT Desk: Mark and Margaret**  
+技术支持：Mark 与 Margaret  
+
+**PPT: Wendy**  
+投影片：Wendy  
+
+---
+
+## READINGS - Next Sunday  
+## 下主日经文
+
+**Jeremiah 31: 7-14**  
+耶利米书 31:7–14  
+
+**Psalm 147: 12-20**  
+诗篇 147:12–20  
+
+**Ephesians 1: 3-14**  
+以弗所书 1:3–14  
+
+**John 1: 10-18**  
+约翰福音 1:10–18  
+
+---
+
+## HYMNS - Next Sunday  
+## 下主日诗歌
+
+**As with gladness men of old**  
+古时东方博士欢然前行  
+
+**We three kings of orient are**  
+我们三王来自东方  
+
+**Shine Jesus Shine**  
+照耀吧，耶稣，照耀  
+
+**Child in the manger**  
+马槽中的圣婴  
+
+**Angels from the realms of glory**  
+荣耀境界的天使  
+
+---
+
+## ROSTERS - NEXT SUNDAY  
+## 下主日服事安排
+
+**To Be Advised**  
+另行通知。
+
+---
+
+## PRAYERS  
+## 代祷事项
+
+**Pray for those who are affected by the Bondi killings…**  
+为受到邦迪凶杀事件影响的人祷告，包括遇难者家属、葬礼与恢复；并为整个犹太社区的安全与尊重祷告。
+
+**Praise and thank God for Bishop Paul’s effective ministry everywhere…**  
+赞美并感谢神赐予保罗主教各地有效的服事；并为他在2026年1月假期中的休息与放松祷告。
+
+**Pray for Rev Michelle for her health, family and ongoing plans in transitions.**  
+为Michelle牧师的健康、家庭及转变中的未来计划祷告。
+
+**Thank God for all volunteers… Pray for the nominators…**  
+感谢神赐下所有志愿者、同工、堂务监督及教区委员会成员；并为提名委员会在寻找下一任牧师的辛劳祷告。
+
+**Please God to heal and comfort all those who are sick and unwell…**  
+求神医治并安慰教会及家庭中所有患病或身体不适的人。
+
+**Please God to help us singing without an organist…**  
+求神帮助我们在没有风琴师的情况下仍能歌唱；感谢Felix在12月24日的协助，感谢保罗牧师的号角，以及诗班的带领。
+
+**Please God to comfort and strengthen the distressed…**  
+求神安慰并坚固忧伤、抑郁、痛苦、脆弱，以及因各种事情而感到不安与痛苦的人。
+
+**Please God to grant us faith, trust, courage, resilience when facing loss and changes**  
+当我们面对失去与改变时，求神赐给我们信心、信靠、勇气与韧性。
+
+---
+
+## A thought at Christmas Season about Jesus and Christianity  
+## 圣诞节期间关于耶稣与基督信仰的一段思考  
+*from “Simply Christian” by Tom Wright*  
+摘自汤姆·赖特《简明基督信仰》
+
+**Christianity is about something that happened…**  
+基督信仰关乎一件已经发生的事：发生在拿撒勒人耶稣身上的事，也借着拿撒勒人耶稣而发生的事……基督信仰的核心在于相信：永活的上帝，为了成就祂的应许，作为以色列故事的高潮，已经在耶稣里完成了一切——寻找、拯救、赐下新生命。祂已经完成了这一切。借着耶稣，上帝的拯救行动一次且永远地付诸实施。宇宙中一扇巨大的门被打开，永不再关闭；那是囚禁我们之牢的门。如今，自由被赐给我们——经历上帝拯救的自由……我们都被邀请、被呼召，借着跟随耶稣，发现一个充满公义、属灵、关系与美的所在……当我们聆听耶稣时，我们会发现，那一直在全人类心灵深处回响的声音，正是祂的声音。
+
+---
+
+## ONLINE MINISTRY LINK  
+## 在线事工链接
+
+Facebook  
+Website  
+**CLICK HERE YOUTUBE LIVE LINK**  
+点击此处观看 YouTube 直播
+
+---
+
+## Contact us  
+## 联系我们
+
+**Tel:** 03 9555 1037  
+**Email:** stdavidsmoorabbin@gmail.com  
+
+---
+
+## CHURCH ONLINE GIVING  
+## 教会线上奉献
+
+**Bendigo Bank**  
+**BSB:** 633 108  
+**AC:** 1547 98383  
+
+---
+
+View email in browser  
+在浏览器中查看邮件  
+
+St David's Moorabbin Anglican Church ·  
+4 Redholm Street · MOORABBIN, Vic 3189 · Australia  
+
+Update your preferences or unsubscribe  
+更新偏好设置或取消订阅  
+
+Email Marketing Powered by Mailchimp  
+电子邮件营销由 Mailchimp 提供
